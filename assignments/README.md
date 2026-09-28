@@ -1,1 +1,0 @@
-# ajsweetie.github.io
